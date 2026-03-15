@@ -36,6 +36,9 @@
 ## Nude II
 ![nude2](nude-2.jpg)
 
+## Nude III
+![nude3](nude-3.jpg)
+
 ## Ballerina IV
 ![ballerina-4](ballerina-4.jpg)
 
