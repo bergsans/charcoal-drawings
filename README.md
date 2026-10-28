@@ -40,7 +40,7 @@
 ![nude3](nude-3.jpg)
 
 ## Nude IV
-![nude4](nude-4.jpeg)
+![nude4](nude-4.jpg)
 
 ## Ballerina IV
 ![ballerina-4](ballerina-4.jpg)
